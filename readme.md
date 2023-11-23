@@ -1,4 +1,4 @@
-echo "# Stevia" >> README.md
+echo "# Stevia and Erythritol " >> README.md
 Research on Growing Stevia
 
 https://greenwaymyanmar.com/posts/Stevia_Effects
