@@ -27,3 +27,6 @@ other resources - https://www.youtube.com/@EverythingHomemadewithRita/search?que
 
 အတုံးပြုလုပ်ခြင်း
 https://ijariie.com/AdminUploadPdf/STEVIA_REBAUDIANA_SUGAR_CRYSTALLIZATION_PROCESS_ijariie12473.pdf
+
+စဆုံး 
+https://www.steviashantanu.com/post-harvest-processing
